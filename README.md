@@ -2,10 +2,11 @@
 
 ### Integrantes
 
-> Sofía
 
 > Isabella García
 
 > Tomás Lopera
 
 > Pedro Sierra
+
+> Sofía Zuluaga
